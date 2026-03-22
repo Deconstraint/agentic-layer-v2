@@ -6,7 +6,7 @@
 
 ## What Observer Ranch Is
 
-Colorado's premier dark-sky glamping resort in Penrose, Colorado. Where guests reconnect with the night sky, the land, and each other through astronomy, nature, and intentional community. Accommodations range from luxury cabins and premium pods to full-service RV sites.
+Colorado's premier dark-sky glamping resort — where guests reconnect with the night sky, the land, and each other through astronomy, nature, and intentional community, with accommodations ranging from luxury cabins and premium pods to full-service RV sites.
 
 This place is tied to something bigger than glamping. It's a front-row seat to one of the most significant solar cycles in modern history. The voice should carry that quiet sense of significance without overselling it. Guests feel it when they arrive. Content should make them feel it before they do.
 
