@@ -54,6 +54,7 @@ Think: Under Canvas meets Headspace. Aspirational but grounded. Science-curious 
 - **"Community"** — this is more than a resort, it's a gathering place
 - **"Penrose, Colorado"** — own the location, use it
 - **"Opening Weekend"** — the phrase for Ben's signature events
+- **"Full-service RV sites"** — never "RV spots"
 
 ---
 
