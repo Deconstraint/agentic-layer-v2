@@ -80,7 +80,6 @@ Every piece connects to one of these:
 4. **The Experience** — Guest stories, event recaps, what a stay actually looks like
 5. **What's Coming** — Upcoming events, Opening Weekends, booking windows, seasonal highlights
 6. **Full-Time RV Life** — Full-service RV living, long-term stays, life on the road, RV community at Observer Ranch
-7. **Mytikas / Ownership** — RV site ownership and investment opportunity, owning a piece of the property, the Mytikas angle — for people who want more than a visit
 
 ---
 
